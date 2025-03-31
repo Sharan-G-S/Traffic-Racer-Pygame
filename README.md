@@ -59,3 +59,4 @@ Background music and sound effects
 
 **Let me know if you want any further customizations! 🚀**
 
+<img width="404" alt="Screenshot 2025-03-31 at 6 42 08 PM" src="https://github.com/user-attachments/assets/917f17dc-2879-4382-be7d-7b244b9b41f1" />
